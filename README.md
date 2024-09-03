@@ -4,5 +4,5 @@
 - I'm trying to collaborate with things that make me good and make me happy
 - To get to me just be a nice person
 - She hers
-- i loved studied english and i loved so much listen to the music.
+- i love studied english and i love so much listen to the music.
 
